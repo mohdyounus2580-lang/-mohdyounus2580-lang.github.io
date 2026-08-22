@@ -1,1 +1,1 @@
-mohdyounus2580-lang.github.io
+mohdyounus2580-lang.githubio
